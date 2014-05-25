@@ -15,7 +15,7 @@ Community Boards in New York City have expressed a common interest in engaging m
 
 We expect this format to increase community engagement by showing residents that their Community Board is working on issues that matter to them –  evidenced by 311 call trends.
 
-The current issue of "Trends" is for Community Board 9 and focuses on housing complaints, most of which are heating and plumbing - a typiccal trend for this time of year.
+The current issue of "Trends" is for Community Board 9 and focuses on housing complaints, most of which are heating and plumbing - a typical trend for this time of year.
 
 
 The following link documents direct feedback from New York City Community Boards regarding their needs. This, along with the "Trends" team's interviews with staffers from 311 and the New York City Council, informed the "Trends" team's  approach to this project.
